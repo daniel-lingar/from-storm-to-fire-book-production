@@ -99,14 +99,14 @@ Drunk. Determined. Three months in, she dropped the bomb. Pregnant. My gut knew
 this wasn’t love. But it was responsibility. My kid deserved better than what I’d grown
 up with. So I went into overdrive. Two jobs. Grinding until I had us a paid-off trailer
 and a car with no payments. Trying to build something stable on top of a fault line.
-On August 10, 2002, Maverick was born. My first child. My son. We were still in
+On August 10, 2002, my children was born. My first child. My son. We were still in
 Clarksville, trying to become a family before we even knew how to become adults.
-Not even a year later, on June 7, 2003, Shayla came into the world. Only after
-Shayla was born did we move to Little Rock, where I juggled college and full-time
+Not even a year later, on June 7, 2003, one of my children came into the world. Only after
+one of my children was born did we move to Little Rock, where I juggled college and full-time
 work, trying to build something solid with two kids already here and a nervous
 system I didn’t understand. The next twenty years ran on a permanent loop. Break
 up. Crash back together. Love twisted with wreckage. Over and over. Even when we
-were apart, it never stopped burning. Trinity learned where my soft spots were. The
+were apart, it never stopped burning. my ex-wife learned where my soft spots were. The
 kids became weapons. Step out of line, and she’d threaten to kick me out. The
 thought of losing them was pure terror. Not sadness. Terror.
 
@@ -156,8 +156,8 @@ control. Her cruelty.
 My weakness for staying. I didn’t know my nervous system had been wired for
 constant alarm since infancy. Through NICU trauma. Childhood chaos. Loss after
 loss. Twenty years of static. I was living with undiagnosed C-PTSD and no language
-for why everything felt like a threat. In 2020, Trinity was working as a nurse, so I
-went to her doctor, a woman she trusted. Trinity told her I was bipolar. I didn’t correct
+for why everything felt like a threat. In 2020, my ex-wife was working as a nurse, so I
+went to her doctor, a woman she trusted. my ex-wife told her I was bipolar. I didn’t correct
 it. At the time, I was hiding a meth addiction. I assumed the chaos in my head was
 chemical. Self-inflicted. Mood swings. Agitation. Crashes. I thought it was the drugs.
 So I stayed quiet. The diagnosis stuck. Bipolar. Depression. Medications stacked up.
@@ -203,7 +203,7 @@ grow up.” The “it’s all in your head, you’re making something that’s n
 way I ended up believing I was the monster in every room. I had spent years calling
 myself every ugly name I could find when the truth was simpler and sharper: I’d been
 hurt, invalidated, and gaslit until I turned the knife on myself. Eventually, even
-Trinity’s family turned on the chaos. After one separation, they gave her an
+my ex-wife's family turned on the chaos. After one separation, they gave her an
 ultimatum: “Take him back, or we’re done helping you.” She took me back. But in
 secret. For a year, I stayed silent when her family called. When they visited, I hid in
 closets. Literally. A grown man hiding in closets in his own house. Becoming
@@ -223,7 +223,7 @@ was the only way to keep any kind of peace. I distrusted my own perceptions, whi
 made her gaslighting—intentional or not— devastatingly effective. Those moments in
 closets weren’t some metaphor a therapist cooked up. They were literal. Proof that
 my existence felt like something that needed to be hidden. In 2015, it all collapsed.
-Trinity and my mother tag-teamed me into court-ordered rehab for twenty-one days.
+my ex-wife and my mother tag-teamed me into court-ordered rehab for twenty-one days.
 The stated reason was concern. The real reason was control. I was trying to leave
 town with another woman they didn’t approve of. The counselor saw it immediately.
 “You’ll relapse,” he said. “You’re not here by choice. Pain with desperate coping

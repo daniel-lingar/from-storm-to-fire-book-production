@@ -68,7 +68,7 @@ prevent. If I could just say it right, explain enough, become what they needed, 
 misunderstanding, get one more conversation, one more message, one more
 chance, then maybe the death feeling would stop. That was the trap. I thought I was
 fighting for love. Most of the time, I was fighting withdrawal from attachment. After
-Chastidy, the pattern did not stop. It changed names. There was Trinity, off and on,
+Chastidy, the pattern did not stop. It changed names. There was my ex-wife, off and on,
 between the other relationships. That kind of off-and-on connection can do
 something dangerous to a person who already has abandonment wounds. It does
 not let the wound close. It keeps reopening it just enough to keep hope alive. You

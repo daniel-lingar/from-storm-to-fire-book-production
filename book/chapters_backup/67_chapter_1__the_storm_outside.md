@@ -1,8 +1,8 @@
 ## CHAPTER 1 — THE STORM OUTSIDE
 
 that didn’t start as escape, but as relief. It’s about relationships that repeated
-patterns I didn’t yet have language for. It’s also about my kids—Maverick, Shayla,
-Teaguen, Adalee—who were never the cause of the damage, but lived inside its
+patterns I didn’t yet have language for. It’s also about my kids—my children,
+one of my children, one of my children—who were never the cause of the damage, but lived inside its
 ripple. I wrote this because silence doesn’t clarify anything. It just keeps everything
 repeating in the dark. This book doesn’t try to clean it up. But it does try to hold it in a
 structure you can follow. Raw content. Controlled order. If you’ve ever lived with a

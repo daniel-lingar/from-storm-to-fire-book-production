@@ -48,7 +48,7 @@ hurt. Not pretend my choices didn’t matter. Not pretend that because I was wou
 I couldn’t wound others. I did wound others. That is the truth. I hurt people. I failed
 people. I lied. I used. I disappeared. I froze. I avoided. I let shame drive. I let
 substances drive. I let fear make decisions that love should have made. I failed my
-kids in ways I will carry for the rest of my life. Maverick. Shayla. Teaguen. Adalee.
+kids in ways I will carry for the rest of my life. my children. . . .
 They deserved a father who was present. Regulated. Safe. Consistent. They
 deserved a father who could carry pain without turning it into chaos. They deserved
 a father who did not need a pipe, a pill, a bottle, a needle, or a work shift to survive

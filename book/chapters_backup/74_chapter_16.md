@@ -8,7 +8,7 @@ It did not go backward and make me calmer in the rooms where I was tense. It did
 not make me more present in the years where I was half there and half somewhere
 else. It did not remove the worry, confusion, absence, instability, or silence they had
 to live around. That was painful because I loved my kids the whole time. That part
-was never fake. Maverick, Shayla, Teaguen, and Adalee were not side characters in
+was never fake. my children were not side characters in
 my life. They were the reason I kept trying when I did not understand what I was
 trying against. They were the reason I worked, the reason I got up, the reason I tried
 to hold things together even when the way I held things together was hurting me. I

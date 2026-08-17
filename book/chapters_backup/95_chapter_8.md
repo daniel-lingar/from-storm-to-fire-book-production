@@ -59,7 +59,7 @@ U-Haul in Beth’s driveway
 
 CHAPTER
 
-when Greg came out, face tight. He handed me his phone. It was Trinity. “Garrett’s
+when Greg came out, face tight. He handed me his phone. It was my ex-wife. “Garrett’s
 gone,” she sobbed. “He’s dead. There was a wreck.” The world stopped. I stumbled
 away, through the screen door, out onto the lawn. Collapsed. Punched the ground
 until my arms screamed. I needed something solid to hit because nothing inside me
@@ -89,7 +89,7 @@ dogs. Noise. Movement. Life continuing like mine hadn’t just been ripped open.
 nothing. The only thing my brain could lock onto was the green of the grass.
 Unnaturally vivid. Impossibly calm. Like my mind had picked one safe color and
 clung to it while everything else blurred. A couple days later, back in Arkansas, grief
-finally crushed me. Lying beside Trinity, the sobs came hard and uncontrollable. Not
+finally crushed me. Lying beside my ex-wife, the sobs came hard and uncontrollable. Not
 pretty crying. Not quiet tears. A body breaking open. Shaking the mattress. Garrett
 was gone. My brother was gone. That final phone call was permanent. The nondecision was permanent. The guilt felt permanent.
 
@@ -97,7 +97,7 @@ was gone. My brother was gone. That final phone call was permanent. The nondecis
 
 CHAPTER
 
-Then Trinity said: “Shut up. I have work tomorrow.” Something inside me broke that
+Then my ex-wife said: “Shut up. I have work tomorrow.” Something inside me broke that
 night. Not because she caused Garrett’s death. Not because one sentence created
 all the damage. But because in my deepest pain, I reached for comfort and found a
 wall. Worse than a wall. A dismissal. My grief was inconvenient. My sobbing was

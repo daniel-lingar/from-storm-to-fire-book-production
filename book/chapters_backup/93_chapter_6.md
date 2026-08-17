@@ -45,7 +45,7 @@ splitting myself into pieces that could handle whatever was in front of them. Wo
 piece. School piece. Father piece. Survival piece. None of them fully rested at the
 same time. But they kept going. And from the outside, I’m not sure it looked like
 anything was wrong yet. That was the part that made it easier to keep going. Nothing
-had failed. Not visibly. Not all at once. Maverick was still little. Shayla came right
+had failed. Not visibly. Not all at once. one of my children was still little. one of my children came right
 behind him. Two babies close together meant there was no clean pause between
 one need and the next. One bottle finished and another thing started. One diaper
 changed and another load of laundry appeared. One child settled and the other

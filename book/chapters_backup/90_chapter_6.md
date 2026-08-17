@@ -63,7 +63,7 @@ the headlights fifty yards
 from the wreck. Garrett died instantly. Saturday morning in Kansas City felt normal
 until it didn’t. That’s how death moves. The world keeps acting like itself right before
 it stops being the same world. I was leaning against the U-Haul in Beth’s driveway
-when Greg came out, face tight. He handed me his phone. It was Trinity. “Garrett’s
+when Greg came out, face tight. He handed me his phone. It was my ex-wife. “Garrett’s
 gone,” she sobbed. “He’s dead. There was a wreck.” The world stopped. Not slowed.
 Stopped. I stumbled away, through the screen door, out onto the lawn. Collapsed.
 Punched the ground until my arms screamed. I needed something solid to hit
@@ -100,11 +100,11 @@ clung to it while everything else blurred.
 
 CHAPTER
 
-A couple days later, back in Arkansas, grief finally crushed me. Lying beside Trinity,
+A couple days later, back in Arkansas, grief finally crushed me. Lying beside my ex-wife,
 the sobs came hard and uncontrollable. Not pretty crying. Not quiet tears. A body
 breaking open. Shaking the mattress. Garrett was gone. My brother was gone. That
 final phone call was now permanent. The non-decision was permanent. The guilt
-was permanent. Or at least it felt that way. Then Trinity said: “Shut up. I have work
+was permanent. Or at least it felt that way. Then my ex-wife said: “Shut up. I have work
 tomorrow.” Something inside me broke that night. Not because she caused Garrett’s
 death. Not because one sentence created all the damage. But because in my
 deepest pain, I reached for comfort and found a wall. Worse than a wall. A dismissal.

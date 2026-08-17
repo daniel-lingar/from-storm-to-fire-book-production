@@ -24,7 +24,7 @@ I barely had left. Creativity. Focus. Pieces of myself I was trying to turn into
 something visible. I wanted it to mean something. I wanted the people I loved to see
 it and understand that I was still trying, still creating, still reaching from the inside of
 whatever this life had become. I showed it to the people I cared about most. Silence.
-Teaguen said he did not have time. Shayla brushed it off like it did not matter. I tried
+one of my children said he did not have time. one of my children brushed it off like it did not matter. I tried
 to tell myself not to take it personally. People are busy. Kids have their own lives.
 Nobody owes me the reaction I want. I know all of that. I can say all of that from the
 part of me that understands. But another part of me did not hear “busy.” It heard

@@ -9,8 +9,8 @@ closer, the quiet gets loud, and you reach for something—anything—to untangl
 wires in your head. What starts as a quiet exchange with yourself turns into a
 reckoning. No audience. No script. Just the truth, stripped bare. It started with trying
 to connect. I poured months into a video. Creativity, energy, everything I had left.
-Showed it to the people I cared about most. Silence. Teaguen said he had no time.
-Shayla brushed it off like it didn’t matter. Then the songs. Written for her. Better than
+Showed it to the people I cared about most. Silence. one of my children said he had no time.
+one of my children brushed it off like it didn’t matter. Then the songs. Written for her. Better than
 the noise on the radio. Meant to say what I couldn’t out loud. Unheard.
 Unacknowledged. That hurt. Not because of the work. Because of what it meant. A
 need to be seen. To be understood. To matter. My brain twisted the indifference into

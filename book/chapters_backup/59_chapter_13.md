@@ -69,8 +69,8 @@ me. Grabbing. Again and again. Trying to stay alive with tools that were killing
 Society loves to blame the boat. “You’re just an addict.” “Weak.” “Selfish.” “Why can’t
 you just stop?” “Don’t you love your kids?” “Don’t you care what you’re doing?”
 Those questions sound righteous from the outside. Inside, they land like knives.
-Because I did love my kids. That’s what made the shame so heavy. Maverick.
-Shayla. Teaguen. Adalee. My heart still beats their names. I didn’t stand there calmly
+Because I did love my kids. That’s what made the shame so heavy. my children.
+one of my children. one of my children. one of my children. My heart still beats their names. I didn’t stand there calmly
 choosing between a meth pipe and them like two items on a menu. I was trying not
 to implode under a level of pain, panic, grief, and shame that had no off switch. I
 chose the only thing I had found that could slam the volume down in my head for a

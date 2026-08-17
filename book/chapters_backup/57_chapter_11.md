@@ -71,7 +71,7 @@ connection. That’s the contradiction. The nervous system feared closeness. The
 craved it. So love became threat management. I didn’t know how to simply be close.
 I knew how to scan. Perform. Please. Cling. Withdraw. Fawn. Hide. Endure. I knew
 how to read a room for danger. I did not know how to read a room for safety. With
-Trinity, the fear of abandonment was not just emotional. It felt like survival. When the
+my ex-wife, the fear of abandonment was not just emotional. It felt like survival. When the
 kids were used as leverage, it hit the deepest wire in me. Connection could
 disappear. Family could vanish. Love could become a weapon. So I stayed. Not
 because staying was healthy. Not because the marriage was safe.

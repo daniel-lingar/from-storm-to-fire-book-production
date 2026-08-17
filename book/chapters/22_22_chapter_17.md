@@ -138,7 +138,7 @@ disappearing because I’m ashamed. Not making my shame somebody else’s job to
 soothe. Not demanding instant forgiveness because I finally understand myself. Not
 using trauma as a shield against accountability. Predictable behavior is the only
 currency that matters to a nervous system that has been burned too many times.
-Especially with my kids. Maverick. Shayla. Teaguen. Adalee. They do not need
+Especially with my kids. my children. . . . They do not need
 speeches from me as much as they
 
 
@@ -152,7 +152,7 @@ okay or confirm I am nothing. But healing relationships does not work on shame�
 timeline. Trust takes time because damage took time. That is fair. Painful. But fair.
 The Kids Are Anchors, Not Saviors My kids are not saviors. That sentence matters.
 Because love for your children can keep you alive, but it cannot do the healing for
-you. Maverick, Shayla, Teaguen, and Adalee are anchors. And anchors do not pull
+you. my children are anchors. And anchors do not pull
 you out of the water. They keep you from drifting while you swim. My love for them is
 not a cure for C-PTSD. It is a reason to keep doing the work. A reason to learn the
 mechanics of healthy proximity. A reason to stop treating connection like a trap. A

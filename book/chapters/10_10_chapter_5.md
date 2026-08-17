@@ -11,8 +11,8 @@ where the whole structure went up in flames and everybody could point at the smo
 and say, There. That’s when it happened. But collapse doesn’t always work like that.
 Sometimes it’s quiet. Structural. A beam rots behind the wall. Then another. Then
 another. The house still looks standing from the road. Then one day, the floor gives
-out. That was me. Standing from the road. Gone underneath. Trinity took the kids—
-Maverick, Shayla, Teaguen, Adalee—and left the four-bedroom house hollow. A
+out. That was me. Standing from the road. Gone underneath. my ex-wife took the kids—
+my children—and left the four-bedroom house hollow. A
 house built for noise suddenly had none. No footsteps. No doors opening. No kids
 moving through rooms. No normal chaos. Just
 
@@ -80,7 +80,7 @@ is already in the room. It doesn’t come in one wave. It piles. It overlaps. It
 One death pulls ten others up with it. One funeral becomes every funeral. One
 casket becomes every name. And your body stops knowing which loss it is grieving.
 I had tried rehab before. In 2019, I walked out after two weeks. My first call was from
-Trinity. Bills. Kids. Stress. Life. I thought leaving was what she wanted. Later she
+my ex-wife. Bills. Kids. Stress. Life. I thought leaving was what she wanted. Later she
 said it wasn’t. That was the pattern too. I could never find the right answer. Stay and
 fail. Leave and fail. Try and fail. Explain and fail. Shut up and still fail. In 2024, I
 checked myself in again. Three days later, I was medically discharged. Sleep apnea.

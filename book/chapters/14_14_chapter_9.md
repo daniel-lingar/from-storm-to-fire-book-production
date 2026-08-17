@@ -465,7 +465,7 @@ Not just by me, and not just by their mother, but through
 
 the whole system around us. Through addiction, control, silence, lies, stigma, fear,
 and adults who thought they were protecting children while teaching them to live
-without one of their parents. Maverick has not spoken to me in five years. Some of
+without one of their parents. one of my children has not spoken to me in five years. Some of
 that is my fault, and I have to own that. My addiction, instability, absence, symptoms,
 and collapse all had consequences. I cannot tell the truth about alienation and
 pretend I had no part in the pain. But that is not the whole story. There were lies too.
@@ -523,7 +523,7 @@ and expected to act grateful for them. There were times the pain of being pushed
 was turned into proof that I had walked away. The kids did not choose that. They
 were placed inside it. They were too young to understand the adult control around
 them. All they knew was that Dad was leaving, Dad was far away, Dad was not
-there. After enough time, the reason starts mattering less than the absence. Shayla
+there. After enough time, the reason starts mattering less than the absence. one of my children
 saw through some of it when she got older. She saw the lies, the bullshit, the way
 stories had been shaped around her. But by then, another damage had already
 happened. They had learned how to live without me. That is the part that breaks
@@ -563,7 +563,7 @@ starts coming out, survival has already hardened into distance. That is why this
 so much. Not because I think I was innocent, because I know I was not. But guilt for
 my part does not erase what was done to me, and what was done to me does not
 erase what my kids lived through. All of it has to be true at the same time. The story
-with Maverick still hurts in a different way because it has a specific shape. It was not
+with one of my children still hurts in a different way because it has a specific shape. It was not
 just distance. It was not just years passing. It was a story that formed during one of
 the worst weeks of my life, and once that story was handed to him, it became harder
 to reach him than almost anything else. Before COVID hit, I was managing a
@@ -571,13 +571,13 @@ restaurant. My kids worked there
 
 
 
-too. Maverick washed dishes when he was fifteen or sixteen. Shayla waited tables. I
+too. one of my children washed dishes when he was fifteen or sixteen. one of my children waited tables. I
 was managing, cooking, waiting tables, and trying to hold the whole place together
 from every direction. It was stressful, but it was also one of those rare places where
 life still had a shape I could understand. Work had always made more sense to me
 than feelings. At work, I knew what needed done. Cook the food. Handle the
 schedule. Cover the floor. Fix the problem. Keep moving. Then COVID hit, and
-everything changed fast. I remember watching the news with Shayla. Maverick was
+everything changed fast. I remember watching the news with one of my children. one of my children was
 off that day. The governor came on and shut everything down. Just like that, the job
 changed from difficult to impossible. I had to lay people off. People I knew. People
 with kids. People crying and asking how they were supposed to feed their families.
@@ -591,7 +591,7 @@ everyone was home more. More food was being eaten.
 
 More pressure landed in the house. Everything got tighter, and nobody had the
 language for what was happening yet. We were all living inside something nobody
-knew how to handle. Maverick started getting unemployment. It was around $140 a
+knew how to handle. one of my children started getting unemployment. It was around $140 a
 week, plus the extra $600 from COVID, so he was bringing in about $740 a week. I
 was bringing home maybe $500 every two weeks. I was the father, the manager, the
 one who was supposed to provide, and my teenage son suddenly had more money
@@ -614,7 +614,7 @@ every evening, his mother would tell him to buy dinner and say she would pay him
 back when she got paid. That happened again and again. Then we went to Branson
 for the weekend, and it was the same thing. Pay for this, and she would pay him
 back. In my mind, that money was going toward food, bills, and the family getting
-through that period. It was not drug money. I did not spend one dollar of Maverick’s
+through that period. It was not drug money. I did not spend one dollar of one of my children's
 unemployment on drugs. Not one. But later, that was not the story he was told. The
 week everything broke, I was already barely holding on. I had just laid people off.
 Some of them had begged and cried because they did not know how they were
@@ -624,7 +624,7 @@ my body still tried to carry the weight anyway.
 
 
 By the time I got home, I was raw from the inside out. The trash was piled high, even
-on the kitchen floor. Maverick was on the PlayStation. I told him to take out the trash.
+on the kitchen floor. one of my children was on the PlayStation. I told him to take out the trash.
 He said no. He was busy. Something in me snapped. I am not proud of that. I am not
 trying to make it sound better than it was. I was exhausted, ashamed, scared, and
 overloaded, and I reacted out of all of it. I went over and unplugged his game. He still
@@ -647,7 +647,7 @@ fires, and every direction looked like loss. I relapsed that week. That is the t
 After I relapsed, I stepped down as manager. Then I quit the next week. I could not
 keep pretending I was stable enough to lead other people while I was falling apart
 that badly inside. The relapse was real. The collapse was real. My responsibility in
-that is real. But the lie that came after it was real too. Trinity told Maverick I spent all
+that is real. But the lie that came after it was real too. my ex-wife told one of my children I spent all
 his unemployment money on drugs. He believed her. That is the part that still burns
 because it took one of the most painful weeks of my life and turned it into a story
 where I was nothing but the villain. It erased the food. It erased the bills. It erased
@@ -672,7 +672,7 @@ understood at fifteen or sixteen. Some of it went to things his mother said she 
 pay back. Some of it went into a vacation she did not pay him back for. Later, when
 the details faded, the lie stayed. That is how alienation works sometimes. It does not
 always need a thousand stories. Sometimes it only needs one story repeated at the
-right moment, when a child is hurt enough to believe it. Maverick was hurt. I know
+right moment, when a child is hurt enough to believe it. one of my children was hurt. I know
 that. He was old
 
 
@@ -697,7 +697,7 @@ anger is what helped him survive what he believed
 
 happened. But I want the truth written somewhere. Not to force him, not to corner
 him, and not to demand forgiveness. Just so the lie is not the only record left.
-Maverick, if you ever read this, I need you to know this clearly: I did relapse. I did fall
+one of my children, if you ever read this, I need you to know this clearly: I did relapse. I did fall
 apart. I did fail in ways I will carry for the rest of my life. But I did not spend your
 unemployment money on drugs. I did not choose drugs over you. I was drowning
 during COVID in ways I did not know how to survive, and I handled parts of it badly.

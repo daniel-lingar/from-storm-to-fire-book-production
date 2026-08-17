@@ -475,8 +475,8 @@ screams and you do not obey it. Resilience is not pretending the fire never burn
 is learning how to carry the ember without burning everything down. Appendix B:
 Letters of Healing LETTERS OF HEALING Note: These aren’t apologies. They’re
 acknowledgments. Written to stop the loop, own the mechanics, and release the
-weight so the work can actually move forward. To My Children (Maverick, Shayla,
-Teaguen, Adalee) I’ve spent too long letting the chaos inside me spill onto you. I’m
+weight so the work can actually move forward. To My Children (my children,
+one of my children, one of my children) I’ve spent too long letting the chaos inside me spill onto you. I’m
 sorry. This isn’t an excuse. It’s an explanation of the storm I carried and how it hurt
 you. You deserved a steady, present, safe father. Too often, I wasn’t that. From early
 on, my nervous system learned to brace for impact.
@@ -496,7 +496,7 @@ committed to earning it, day by day, by showing up honest, steady, and present. 
 you’re angry or hurt, that’s valid. I’m here when you’re ready. My fight is mine. But
 your existence is the fuel. I’m fighting for a future where I can be the father you
 deserved. You are never to blame for my struggles. I love you more than words can
-hold. Always. To Trinity I’m writing this with clarity carved from years of therapy and
+hold. Always. To my ex-wife I’m writing this with clarity carved from years of therapy and
 nights
 
 
@@ -523,7 +523,7 @@ of the NICU’s first lesson: Your presence is a problem. Disappear. Rehab in 20
 wasn’t care; it was control. The divorce, the legal fallout, the courtroom purgatory—it
 all echoed the same message: you don’t get to be here. We fed each other’s
 wounds. I own my part: the rage, the addiction, the failure to regulate. I’m sick with
-regret for the pain I caused Maverick, Shayla, Teaguen, Adalee. Therapy showed me
+regret for the pain I caused my children. Therapy showed me
 it’s C-PTSD, not Bipolar. The wiring drove the spirals. Substances were a flawed
 escape, not a choice to hurt anyone. I’m not asking for apologies or a rewrite. I’m
 owning my side so the resentment stops eating me alive. I see you as human,
@@ -809,7 +809,7 @@ twenty years of experience in restaurant operations, maintenance, customer servi
 and high-pressure work environments. Those years taught him how trauma can hide
 behind performance, how overworking can become another rescue boat, and how a
 person can look functional while falling apart inside. He is also the father of
-Maverick, Shayla, Teaguen, and Adalee, whose names remain at the center of his
+my children, whose names remain at the center of his
 healing work. This book is part memoir, part map, and part reckoning: a testimony of
 what happened, why it happened, what it cost, and what it means to keep choosing
 repair when shame says it is too late. Bret is not
@@ -870,7 +870,7 @@ out without admitting I was trying to rest.
 
 
 I didn’t know for years that this was a trauma response. I just thought it was how I
-was. FRONT MATTER DEDICATION For Maverick, Shayla, Teaguen, and Adalee.
+was. FRONT MATTER DEDICATION For my children.
 You were never the reason I broke. You were the reason I kept trying to make sense
 of something I didn’t understand for a long time. This book is not you carrying my
 pain. It’s me finally learning how to stop handing it down. I love you more than
