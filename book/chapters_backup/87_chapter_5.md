@@ -61,7 +61,7 @@ move. It is not choice. It is a breaker tripping. It is the
 CHAPTER
 
 system shutting down because danger got too big and too fast. Mom was on the
-floor. Falon grabbed her. Tina called 911. The living room filled with paramedics. My
+floor. Falon grabbed her. An earlier partner called 911. The living room filled with paramedics. My
 body was there. I was not fully in it. My sister asked, “Who am I?” Mom said, “Paula.”
 Naming her dead sister. Her blood sugar was over 600. “She won’t make it,”
 someone said. Three days later, her heart stopped in her sleep. Just like that,

@@ -531,7 +531,7 @@ scarred by your own unseen wars. I’m fighting for sobriety, rewiring my brain,
 building a life that isn’t ash. My kids are my north star. I’m clawing to be the father I
 owed them. I don’t expect friendship. I’m asking for basic respect in co-parenting, not
 a war that keeps them from their dad. I’m burning the slaughterhouse to the ground.
-Walking into a future forged in healing, not hate. To Kristina Williston was a whirlwind
+Walking into a future forged in healing, not hate. That later relationship was a whirlwind
 that left me shattered. You came when I was raw—grieving my mom, my marriage,
 my kids. Your attention felt like a lifeline.
 

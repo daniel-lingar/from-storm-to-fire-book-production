@@ -29,7 +29,7 @@ glass? Why did peace feel suspicious? Why did I keep reaching for substances
 when I knew what they were costing me? Why did I feel so fundamentally,
 permanently broken? At first, my default setting was to point outward. The world was
 fucked up. Bad luck stacked against me. Shitty people crossed my path. my ex-wife did
-this. Kristina did that. The cops failed here. The court system failed there. Family
+this. A later partner did that. The cops failed here. The court system failed there. Family
 didn’t understand. People judged. And yeah, plenty of external shit did go sideways.
 Spectacularly. Losing Garrett. Mom dying. The betrayal. The manipulation. The
 shame. The systems that measured compliance without understanding freeze.

@@ -12,7 +12,7 @@ North Dakota. The promotion I thought might finally prove something had been tak
 from me before I ever got to stand inside it, and then the job itself was gone too.
 What I had called a fresh start had turned into another place where the same pattern
 caught up with me. I came back carrying more than bags. I carried the shame of
-failing again. I carried Tina. I carried Kristina. I carried Garrett. I carried my mother. I
+failing again. I carried that earlier relationship. I carried a later partner. I carried Garrett. I carried my mother. I
 carried the kids being gone from my daily life. I carried the old addiction, the work
 addiction, the relationship
 

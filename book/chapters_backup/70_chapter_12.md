@@ -21,7 +21,7 @@ another place where the same pattern caught
 CHAPTER
 
 up with me. I came back carrying more than bags. I carried the shame of failing
-again. I carried Tina. I carried Kristina. I carried Garrett. I carried my mother. I carried
+again. I carried that earlier relationship. I carried a later partner. I carried Garrett. I carried my mother. I carried
 the kids being gone from my daily life. I carried the old addiction, the work addiction,
 the relationship withdrawals, the quiet BPD label I had tried to use as a map, and the
 fear that maybe none of it mattered because I was just the problem everywhere I

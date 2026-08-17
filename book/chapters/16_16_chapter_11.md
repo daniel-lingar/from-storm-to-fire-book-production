@@ -82,8 +82,8 @@ feel better than starvation. When you grew up already feeling emotionally starve
 crumbs can feel like a feast. I wish I could say I saw the pattern after the first time
 and stopped repeating it. I did not. I carried it forward because I still did not
 understand what it was. I thought every new person was a new story, but most of the
-time my nervous system was reading from the same old script. Then came Tina.
-With Tina, I thought I really loved her. I believed it with everything in me. From
+time my nervous system was reading from the same old script. Then came an earlier partner.
+With an earlier partner, I thought I really loved her. I believed it with everything in me. From
 around 2020 to 2022, that attachment took hold of me in a way that felt impossible to
 explain from the outside. It was not clean, calm, or steady. It was the kind of love that
 made me feel like I
@@ -91,7 +91,7 @@ made me feel like I
 
 
 could not breathe without it. Because I did not understand trauma bonds, I called
-that love too. Tina became another place where the old wound found a home. I was
+that love too. An earlier partner became another place where the old wound found a home. I was
 already unraveling during those years. Addiction was getting worse. My marriage
 had fallen apart. My mother died. Garrett was still a wound that never stopped
 bleeding. I was carrying grief, shame, meth, alcohol, work, exhaustion, and a
@@ -101,7 +101,7 @@ When you are regulated, love can be a choice. When you are drowning, love can
 become a life raft, even if the life raft is full of holes. You hold on because the water
 feels worse. You hold on because letting go feels like sinking. You hold on because
 your body does not believe you will survive the drop. That was the truth I did not
-have words for yet. I was not just afraid of losing Tina. I was afraid of what losing her
+have words for yet. I was not just afraid of losing that earlier partner. I was afraid of what losing her
 woke up inside me. The abandonment did not feel like normal loss. It felt like death. I
 need to say that carefully because people misunderstand it. I am not saying it
 mattered more than Garrett. I am not saying
@@ -111,7 +111,7 @@ mattered more than Garrett. I am not saying
 losing a relationship is the same as losing my brother. Garrett’s death broke
 something in time. That grief is its own thing, and nothing replaces it. But
 abandonment hit a different system in me. Garrett was grief. Abandonment was
-survival. When Tina pulled away, or when I thought I was losing her, my body did not
+survival. When that earlier partner pulled away, or when I thought I was losing her, my body did not
 process it like sadness. It processed it like danger. Like the floor had disappeared.
 Like I was a child again with no protection, no control, and no way to make the pain
 stop. The feeling was so primitive that logic could not reach it. It did not care what
@@ -126,8 +126,8 @@ nervous system begging not to be abandoned again. Then
 
 
 
-came Kristina. Kristina scared me in a different way because I did not want her at
-first. I did not want a relationship. I was still crying over Tina every day. I had walls
+came a later partner. A later partner scared me in a different way because I did not want her at
+first. I did not want a relationship. I was still grieving that earlier relationship every day. I had walls
 up, and they were thick. I saw red flag after red flag. I told myself no. I told myself not
 this time. I did not even feel drawn to her in the beginning. I did not look at her and
 think, this is what I want. That should have protected me. It did not. Out of nowhere,
@@ -147,7 +147,7 @@ sounded like someone had been
 following me around with a notebook. I thought I had found myself in quiet BPD. I
 told people that. I wrote about it. I tried to explain my life through that lens because it
 was the first lens that made any kind of sense. But it still wasn’t the whole truth. After
-Kristina took my promotion, after I got fired, after I lost my apartment and moved
+A later partner took my promotion, after I got fired, after I lost my apartment and moved
 back to Arkansas, the fear got worse in a way I could not explain away with
 relationship language anymore. It was not just attachment. It was my whole body.
 Walking to the mailbox felt like walking onstage in front of the world. I would stand
