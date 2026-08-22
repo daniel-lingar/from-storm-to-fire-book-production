@@ -2,6 +2,8 @@
 
 This repository is an **archived historical production workspace** for *From the Storm to the Fire*. It contains manuscript chapter copies, revision backups, build scripts, design assets, and export workflow materials. Its substantive manuscript content has been reviewed and is already represented in the compiled canonical memoir repository.
 
+> **WRH Project Ecosystem:** This repository is retained as historical production provenance, not as the active source of truth. For the consolidated public portfolio and system map, start at [Technical Prompt Engineer & AI Evaluation Specialist](https://daniel-lingar.github.io/technical-prompt-engineer-portfolio/). For the primary polished public manuscript, see [from-the-storm-to-the-fire](https://github.com/daniel-lingar/from-the-storm-to-the-fire).
+
 ## Canonical repository
 
 The canonical public memoir is maintained at:
